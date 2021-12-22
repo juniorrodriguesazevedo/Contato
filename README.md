@@ -6,7 +6,7 @@
 ```
 #### Discord: 
 ```
-@juniorrodrigues_telegram
+Junior Rodrigues#5238
 ```
 
 #### Instagram: 
